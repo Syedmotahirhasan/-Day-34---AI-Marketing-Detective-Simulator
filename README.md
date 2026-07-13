@@ -71,6 +71,12 @@ Tasks completed:
 
 <img width="926" height="767" alt="image" src="https://github.com/user-attachments/assets/1f526004-2acc-4afe-9e7d-ad4ffd95b5c6" />
 
+<img width="912" height="776" alt="image" src="https://github.com/user-attachments/assets/eb6b50d9-1292-41ff-9e66-beddf44b37d9" />
+
+<img width="932" height="831" alt="image" src="https://github.com/user-attachments/assets/b21fdf84-5483-495e-9237-486e9eeb337c" />
+
+
+
 
 
 
