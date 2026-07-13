@@ -67,6 +67,12 @@ Tasks completed:
 
 <img width="932" height="877" alt="image" src="https://github.com/user-attachments/assets/1a4e0345-ecfc-43c2-8162-a70ccc0c0886" />
 
+<img width="926" height="855" alt="image" src="https://github.com/user-attachments/assets/f971871e-f23b-48c0-a84f-28e5c7b56d85" />
+
+<img width="926" height="767" alt="image" src="https://github.com/user-attachments/assets/1f526004-2acc-4afe-9e7d-ad4ffd95b5c6" />
+
+
+
 
 
 ### 4. Marketing Mistake Identification
